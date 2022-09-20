@@ -1,5 +1,6 @@
-### Hi there 👋
+haha. thats funny.
 
+greetings traveler! hope you find anything integersting here someday...
 <!--
 **nightflav/nightflav** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
